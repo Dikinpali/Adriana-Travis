@@ -1,172 +1,172 @@
 ---
 title: "how to make paper pumpkins fun easy halloween kids craft its - simple paper pumpkin craft for kids woo jr kids activities | pumpkin ideas on paper"
-date: "2023/03/16"
-description: "I drew a pumpkin on the ."
+date: "2023/12/21"
+description: "These adorable paper pumpkins are super easy to make and perfect for decorating halloween parties, thanksgiving get togethe."
 tag: "Uncategorized"
 ---
 
 # how to make paper pumpkins fun easy halloween kids craft its - simple paper pumpkin craft for kids woo jr kids activities | pumpkin ideas on paper
-**how to make paper pumpkins fun easy halloween kids craft its - simple paper pumpkin craft for kids woo jr kids activities | pumpkin ideas on paper**. How to make a pumpkin with paper | paper craft i hope you have enjoyed this easy kids craft and if you like what you see don&#039;t forget to . At room temperature, a pumpkin starts to go bad after about a month. Cut each piece of paper vertically into five 1.5” wide strips. Craft supplies that work well with paper pumpkin crafts · glue sticks · white glue · scissors · googly eyes · craft sticks · pipe cleaners · tissue . I drew a pumpkin on the .
-Cut each piece of paper vertically into five 1.5” wide strips. An uncarved pumpkin stays fresh for two to three months when stored at outdoor temperatures around 50 degrees fahrenheit. At room temperature, a pumpkin starts to go bad after about a month. How to make a pumpkin with paper | paper craft i hope you have enjoyed this easy kids craft and if you like what you see don&#039;t forget to . It&#039;s a fun fall craft you .
-[![cupcake wishes birthday dreams diy halloween paper pumpkin](https://i0.wp.com/paintingparispink.com/wp-content/uploads/2015/10/Finished-Pumpkins.png "cupcake wishes birthday dreams diy halloween paper pumpkin")](https://i0.wp.com/paintingparispink.com/wp-content/uploads/2015/10/Finished-Pumpkins.png)
-<small>cupcake wishes birthday dreams diy halloween paper pumpkin from i0.wp.com</small>
+**how to make paper pumpkins fun easy halloween kids craft its - simple paper pumpkin craft for kids woo jr kids activities | pumpkin ideas on paper**. How many sheets of paper will i need for each size of pumpkin? A signature element of fall décor, pumpkin can never go out of fashion. These fall paper pumpkins look beautiful in any decor. Form the stem and vines Websep 1, 2020 · paper pumpkin craft orange paper (regular or construction paper) green paper (same) black construction paper (optional) scissors glue
+Form the pumpkin with the round part of the paper fastener facing up, spread out the paper strips evenly. As halloween is soon going to knock at your doors, get prepared with some adorable paper pumpkin crafts that would give your temporarily haunted mansion a creepy yet adorable finish. Form the stem and vines Find easy to follow instructions for making adorable paper pumpkins from strips of card stock or construction paper. Welcome to making paper pumpkins!
+[![easy paper pumpkin craft pint sized treasures](https://i0.wp.com/pintsizedtreasures.com/wp-content/uploads/2015/09/This-cute-paper-pumpkin-is-the-perfect-fall-craft-for-kids-And-it-looks-great1.jpg "easy paper pumpkin craft pint sized treasures")](https://i0.wp.com/pintsizedtreasures.com/wp-content/uploads/2015/09/This-cute-paper-pumpkin-is-the-perfect-fall-craft-for-kids-And-it-looks-great1.jpg)
+<small>easy paper pumpkin craft pint sized treasures from i0.wp.com</small>
 
-How to make a paper pumpkin | fall crafts for kids these paper pumpkins are so easy to make and you only need some construction paper and . I drew a pumpkin on the . Paper pumpkin made out of layers of concertina folded orange paper. Ultimately, the idea is to make the pumpkins unappetizing to the squirrels so they don’t want to eat them. Fold the stem on the score line. To keep squirrels away from your pumpkins, you need to experiment with a number of options. Then cut each strip into one 7”, two 9”, and keep the remaining two at 11”. Felt pumpkin face is a fun and easy craft for beginners.
+You’ll need 4 total to make the pumpkin shown. Websep 25, 2023 · paper diy pumpkin decorations steps. A paper trimmer is handy, but you can … If you like paper crafts, you. Webaug 4, 2022 · learn how to make a paper pumpkin. Welcome to making paper pumpkins! You can use these in arrangements, table decor and fall wreath decorations. A signature element of fall décor, pumpkin can never go out of fashion.
 
-### See more ideas about paper pumpkin, .
-Fold the stem on the score line. These little pumpkins are so much fun to make. Craft supplies that work well with paper pumpkin crafts · glue sticks · white glue · scissors · googly eyes · craft sticks · pipe cleaners · tissue . See more ideas about paper pumpkin, . Nothing says halloween like carving a pumpkin into something scary, silly or out of this world. How to make a pumpkin with paper | paper craft i hope you have enjoyed this easy kids craft and if you like what you see don&#039;t forget to . Ultimately, the idea is to make the pumpkins unappetizing to the squirrels so they don’t want to eat them. An uncarved pumpkin stays fresh for two to three months when stored at outdoor temperatures around 50 degrees fahrenheit. Then use a quilling tool to roll up your stem. It&#039;s ideal for children and adults alike. Paper pumpkin made out of layers of concertina folded orange paper. How to make a paper pumpkin | fall crafts for kids these paper pumpkins are so easy to make and you only need some construction paper and . At room temperature, a pumpkin starts to go bad after about a month.
-Paper pumpkin made out of layers of concertina folded orange paper. It&#039;s ideal for children and adults alike. Fold the stem on the score line. These little pumpkins are so much fun to make. For the larger pumpkin, glue the eight paper strips together, fanned out in a circle to look like the picture.
-[![how to make a paper pumpkin halloween decorations paper crafts](https://i.ytimg.com/vi/G3fIcPLWCDg/maxresdefault.jpg "how to make a paper pumpkin halloween decorations paper crafts")](https://i.ytimg.com/vi/G3fIcPLWCDg/maxresdefault.jpg)
-<small>how to make a paper pumpkin halloween decorations paper crafts from i.ytimg.com</small>
+### Weboct 10, 2015 · 14 diy paper pumpkin craft ideas.
+Webjul 12, 2018 · you can try it with different colored papers (crepe, tissue, cardstock, old book papers, newspapers, scrapbook pages etc.) in different patterns as well. Diy paper pumpkin craft ideas. A signature element of fall décor, pumpkin can never go out of fashion. Go through the versatile diy tutorials and make your own paper pumpkin craft this halloween! You can use these in arrangements, table decor and fall wreath decorations. Websep 16, 2022 · project tips what type of paper is best for this project? 590k views 3 years ago. Weboct 10, 2015 · 14 diy paper pumpkin craft ideas. I recommend 12×12” sheets of cardstock (or scrapbooking paper of comparable thickness), which gives the pumpkins the weight they need to keep their shape. A paper trimmer is handy, but you can … Again, the colors are endless. These fall paper pumpkins look beautiful in any decor. Weboct 18, 2021 · in today’s post:
+Go through the versatile diy tutorials and make your own paper pumpkin craft this halloween! Cut and connect the paper make a small mark every inch along the top and bottom of long edge of the paper. Form the pumpkin with the round part of the paper fastener facing up, spread out the paper strips evenly. Weboct 18, 2021 · in today’s post: Websep 16, 2022 · project tips what type of paper is best for this project?
+[![papercuties stamp club project paper pumpkins](http://3.bp.blogspot.com/_2rKttKkwsxo/TLOmsVvzYAI/AAAAAAAAA2A/zOYrFoEF90A/s1600/pumpkin+workshop7.jpg "papercuties stamp club project paper pumpkins")](http://3.bp.blogspot.com/_2rKttKkwsxo/TLOmsVvzYAI/AAAAAAAAA2A/zOYrFoEF90A/s1600/pumpkin+workshop7.jpg)
+<small>papercuties stamp club project paper pumpkins from 3.bp.blogspot.com</small>
 
-Felt pumpkin face is a fun and easy craft for beginners. Fold the stem on the score line. For the larger pumpkin, glue the eight paper strips together, fanned out in a circle to look like the picture. See more ideas about paper pumpkin, . Paper pumpkin made out of layers of concertina folded orange paper. How to make a pumpkin with paper | paper craft i hope you have enjoyed this easy kids craft and if you like what you see don&#039;t forget to . These little pumpkins are so much fun to make. Nothing says halloween like carving a pumpkin into something scary, silly or out of this world.
+These adorable paper pumpkins are super easy to make and perfect for decorating halloween parties, thanksgiving get togethe. Go through the versatile diy tutorials and make your own paper pumpkin craft this halloween! These fall paper pumpkins look beautiful in any decor. Webjul 12, 2018 · you can try it with different colored papers (crepe, tissue, cardstock, old book papers, newspapers, scrapbook pages etc.) in different patterns as well. Websep 1, 2020 · paper pumpkin craft orange paper (regular or construction paper) green paper (same) black construction paper (optional) scissors glue A signature element of fall décor, pumpkin can never go out of fashion. I recommend 12×12” sheets of cardstock (or scrapbooking paper of comparable thickness), which gives the pumpkins the weight they need to keep their shape. You’ll need 4 total to make the pumpkin shown.
 
-### How to make a pumpkin with paper | paper craft i hope you have enjoyed this easy kids craft and if you like what you see don&#039;t forget to .
-At room temperature, a pumpkin starts to go bad after about a month. Ultimately, the idea is to make the pumpkins unappetizing to the squirrels so they don’t want to eat them. I drew a pumpkin on the . Felt pumpkin face is a fun and easy craft for beginners. Paper pumpkin made out of layers of concertina folded orange paper. An uncarved pumpkin stays fresh for two to three months when stored at outdoor temperatures around 50 degrees fahrenheit. Nothing says halloween like carving a pumpkin into something scary, silly or out of this world. See more ideas about paper pumpkin, . It&#039;s a fun fall craft you . These little pumpkins are so much fun to make. How to make a pumpkin with paper | paper craft i hope you have enjoyed this easy kids craft and if you like what you see don&#039;t forget to . Craft supplies that work well with paper pumpkin crafts · glue sticks · white glue · scissors · googly eyes · craft sticks · pipe cleaners · tissue . For the larger pumpkin, glue the eight paper strips together, fanned out in a circle to look like the picture.
-Felt pumpkin face is a fun and easy craft for beginners. To keep squirrels away from your pumpkins, you need to experiment with a number of options. See more ideas about paper pumpkin, . Punch a hole in the end of each . It&#039;s a fun fall craft you .
-[![mactoys its the most boo tiful time of the year](http://1.bp.blogspot.com/-2r7E5ZwYGKI/VDXeYOEp0vI/AAAAAAAAHzA/0XbT_mGpBWo/s1600/Pumpkin-how-to.jpg "mactoys its the most boo tiful time of the year")](http://1.bp.blogspot.com/-2r7E5ZwYGKI/VDXeYOEp0vI/AAAAAAAAHzA/0XbT_mGpBWo/s1600/Pumpkin-how-to.jpg)
-<small>mactoys its the most boo tiful time of the year from 1.bp.blogspot.com</small>
+### A paper trimmer is handy, but you can …
+These adorable paper pumpkins are super easy to make and perfect for decorating halloween parties, thanksgiving get togethe. Form the stem and vines How many sheets of paper will i need for each size of pumpkin? I recommend 12×12” sheets of cardstock (or scrapbooking paper of comparable thickness), which gives the pumpkins the weight they need to keep their shape. Weboct 18, 2021 · in today’s post: These fall paper pumpkins look beautiful in any decor. This is a fun, quick halloween craft for kids or adults that doubles as holiday decor. Webaug 4, 2022 · learn how to make a paper pumpkin. Form the pumpkin with the round part of the paper fastener facing up, spread out the paper strips evenly. Welcome to making paper pumpkins! White pumpkins are cute, but all the fall colors work for these paper pumpkin decor. Websep 16, 2022 · project tips what type of paper is best for this project? 590k views 3 years ago.
+Webjul 12, 2018 · you can try it with different colored papers (crepe, tissue, cardstock, old book papers, newspapers, scrapbook pages etc.) in different patterns as well. If you like paper crafts, you. Websep 1, 2020 · paper pumpkin craft orange paper (regular or construction paper) green paper (same) black construction paper (optional) scissors glue Weboct 10, 2015 · 14 diy paper pumpkin craft ideas. Diy paper pumpkin craft ideas.
+[![molly bees attic october 2012](http://3.bp.blogspot.com/-Rsm13eZ4bWc/UI7jQLET_KI/AAAAAAAAFx0/49-HTgu40ck/s1600/pumpkin.jpg "molly bees attic october 2012")](http://3.bp.blogspot.com/-Rsm13eZ4bWc/UI7jQLET_KI/AAAAAAAAFx0/49-HTgu40ck/s1600/pumpkin.jpg)
+<small>molly bees attic october 2012 from 3.bp.blogspot.com</small>
 
-These little pumpkins are so much fun to make. How to make a paper pumpkin | fall crafts for kids these paper pumpkins are so easy to make and you only need some construction paper and . Fold the stem on the score line. Felt pumpkin face is a fun and easy craft for beginners. Then use a quilling tool to roll up your stem. It&#039;s ideal for children and adults alike. Cut each piece of paper vertically into five 1.5” wide strips. It&#039;s a fun fall craft you .
+Cut and connect the paper make a small mark every inch along the top and bottom of long edge of the paper. Diy paper pumpkin craft ideas. Weboct 18, 2021 · in today’s post: Websep 1, 2020 · paper pumpkin craft orange paper (regular or construction paper) green paper (same) black construction paper (optional) scissors glue As halloween is soon going to knock at your doors, get prepared with some adorable paper pumpkin crafts that would give your temporarily haunted mansion a creepy yet adorable finish. Form the pumpkin with the round part of the paper fastener facing up, spread out the paper strips evenly. I recommend 12×12” sheets of cardstock (or scrapbooking paper of comparable thickness), which gives the pumpkins the weight they need to keep their shape. This is a fun, quick halloween craft for kids or adults that doubles as holiday decor.
 
-### Fold the stem on the score line.
-To keep squirrels away from your pumpkins, you need to experiment with a number of options. Nothing says halloween like carving a pumpkin into something scary, silly or out of this world. Fold the stem on the score line. Ultimately, the idea is to make the pumpkins unappetizing to the squirrels so they don’t want to eat them. At room temperature, a pumpkin starts to go bad after about a month. I drew a pumpkin on the . It&#039;s a fun fall craft you . Paper pumpkin made out of layers of concertina folded orange paper. Punch a hole in the end of each . How to make a pumpkin with paper | paper craft i hope you have enjoyed this easy kids craft and if you like what you see don&#039;t forget to . Then cut each strip into one 7”, two 9”, and keep the remaining two at 11”. It&#039;s ideal for children and adults alike. Craft supplies that work well with paper pumpkin crafts · glue sticks · white glue · scissors · googly eyes · craft sticks · pipe cleaners · tissue .
+### Welcome to making paper pumpkins!
+As halloween is soon going to knock at your doors, get prepared with some adorable paper pumpkin crafts that would give your temporarily haunted mansion a creepy yet adorable finish. This is a fun, quick halloween craft for kids or adults that doubles as holiday decor. Weboct 18, 2021 · in today’s post: Diy paper pumpkin craft ideas. Select your paper to make a pumpkin. White pumpkins are cute, but all the fall colors work for these paper pumpkin decor. You’ll need 4 total to make the pumpkin shown. Weboct 10, 2015 · 14 diy paper pumpkin craft ideas. Again, the colors are endless. Cut and connect the paper make a small mark every inch along the top and bottom of long edge of the paper. How many sheets of paper will i need for each size of pumpkin? You can use these in arrangements, table decor and fall wreath decorations. A signature element of fall décor, pumpkin can never go out of fashion.
 
 
-[![I drew a pumpkin on the . diy paper pumpkin lia griffith](http://tse2.mm.bing.net/th?id=OIP.Mc5FlX2unXv6JpSUm-RqjQHaMo&amp;pid=15.1 "diy paper pumpkin lia griffith")](https://s3-us-west-2.amazonaws.com/lia-griffith-media/wp-content/uploads/2015/10/Fall_Paper_Pumpkins.jpg)
-<small>Source: s3-us-west-2.amazonaws.com</small>
-
-Paper pumpkin made out of layers of concertina folded orange paper. Craft supplies that work well with paper pumpkin crafts · glue sticks · white glue · scissors · googly eyes · craft sticks · pipe cleaners · tissue . See more ideas about paper pumpkin, . I drew a pumpkin on the . How to make a paper pumpkin | fall crafts for kids these paper pumpkins are so easy to make and you only need some construction paper and .
-[![Punch a hole in the end of each . halloween paper pumpkin easy tutorial diy youtube](http://tse3.mm.bing.net/th?id=OIP.9_YtbLSq5D3Q47oTaWdC8wHaEK&amp;pid=15.1 "halloween paper pumpkin easy tutorial diy youtube")](https://i.ytimg.com/vi/gWsRJvQaGWs/maxresdefault.jpg)
-<small>Source: i.ytimg.com</small>
-
-At room temperature, a pumpkin starts to go bad after about a month. It&#039;s a fun fall craft you . These little pumpkins are so much fun to make. Punch a hole in the end of each . It&#039;s ideal for children and adults alike.
-[![How to make a paper pumpkin | fall crafts for kids these paper pumpkins are so easy to make and you only need some construction paper and . hand stamped by lacey paper pumpkin tutorial](http://tse2.mm.bing.net/th?id=OIP.Gogo0Mlp_KSRs6rKR5lvVQHaE0&amp;pid=15.1 "hand stamped by lacey paper pumpkin tutorial")](https://i0.wp.com/handstampedbylacey.typepad.com/.a/6a00e54fa4627788330105361917a1970b-600wi)
-<small>Source: i0.wp.com</small>
-
-Punch a hole in the end of each . An uncarved pumpkin stays fresh for two to three months when stored at outdoor temperatures around 50 degrees fahrenheit. Then use a quilling tool to roll up your stem. Ultimately, the idea is to make the pumpkins unappetizing to the squirrels so they don’t want to eat them. It&#039;s ideal for children and adults alike.
-[![These little pumpkins are so much fun to make. september paper pumpkin paper pumpkin 2015 paper pumpkin paper](http://tse3.mm.bing.net/th?id=OIP.6TltZJAyXT7_dkkXlq3ARQHaL2&amp;pid=15.1 "september paper pumpkin paper pumpkin 2015 paper pumpkin paper")](https://i1.wp.com/i.pinimg.com/736x/ef/70/75/ef7075cc2e0371fe7cfc100b54983a20--pumpkin-designs-pumpkin-ideas.jpg)
-<small>Source: i1.wp.com</small>
-
-See more ideas about paper pumpkin, . Ultimately, the idea is to make the pumpkins unappetizing to the squirrels so they don’t want to eat them. Nothing says halloween like carving a pumpkin into something scary, silly or out of this world. For the larger pumpkin, glue the eight paper strips together, fanned out in a circle to look like the picture. Punch a hole in the end of each .
-[![Fold the stem on the score line. papercuties stamp club project paper pumpkins](http://tse2.mm.bing.net/th?id=OIP.0ZQSzYCnHq9z49gleR0qWgHaFj&amp;pid=15.1 "papercuties stamp club project paper pumpkins")](https://i0.wp.com/3.bp.blogspot.com/_2rKttKkwsxo/TLOmsVvzYAI/AAAAAAAAA2A/zOYrFoEF90A/s1600/pumpkin+workshop7.jpg)
-<small>Source: i0.wp.com</small>
-
-These little pumpkins are so much fun to make. Then use a quilling tool to roll up your stem. Punch a hole in the end of each . It&#039;s a fun fall craft you . Ultimately, the idea is to make the pumpkins unappetizing to the squirrels so they don’t want to eat them.
-[![Craft supplies that work well with paper pumpkin crafts · glue sticks · white glue · scissors · googly eyes · craft sticks · pipe cleaners · tissue . layered leaves paper pumpkin kit extra projects flowerbugs inkspot](http://tse3.mm.bing.net/th?id=OIP.YTb0FBUTWNAdATTZHkW0CAHaEK&amp;pid=15.1 "layered leaves paper pumpkin kit extra projects flowerbugs inkspot")](https://i1.wp.com/i.ytimg.com/vi/XjVc8eWunYI/maxresdefault.jpg)
-<small>Source: i1.wp.com</small>
-
-Fold the stem on the score line. It&#039;s ideal for children and adults alike. See more ideas about paper pumpkin, . Cut each piece of paper vertically into five 1.5” wide strips. Paper pumpkin made out of layers of concertina folded orange paper.
-[![Cut each piece of paper vertically into five 1.5” wide strips. halloween decorating a paper pumpkin play and learn every day](http://tse4.mm.bing.net/th?id=OIP.HKYGYKpcBRokJcPao9-uPgHaIj&amp;pid=15.1 "halloween decorating a paper pumpkin play and learn every day")](http://4.bp.blogspot.com/-BxO6j6675Ug/UmV-D66YruI/AAAAAAAABZI/AT3ESvUAVFU/s1600/halloween+decorating+a+paper+pumpkin.jpg)
-<small>Source: 4.bp.blogspot.com</small>
-
-Fold the stem on the score line. See more ideas about paper pumpkin, . Paper pumpkin made out of layers of concertina folded orange paper. An uncarved pumpkin stays fresh for two to three months when stored at outdoor temperatures around 50 degrees fahrenheit. For the larger pumpkin, glue the eight paper strips together, fanned out in a circle to look like the picture.
-[![Then cut each strip into one 7”, two 9”, and keep the remaining two at 11”. simple paper pumpkin craft for kids woo jr kids activities](http://tse2.mm.bing.net/th?id=OIP.ce1o0S0jGJTuB_2oZ8iFygHaFj&amp;pid=15.1 "simple paper pumpkin craft for kids woo jr kids activities")](https://i1.wp.com/www.woojr.com/wp-content/uploads/2011/10/018-2.jpg)
-<small>Source: i1.wp.com</small>
-
-These little pumpkins are so much fun to make. Fold the stem on the score line. Felt pumpkin face is a fun and easy craft for beginners. For the larger pumpkin, glue the eight paper strips together, fanned out in a circle to look like the picture. Then cut each strip into one 7”, two 9”, and keep the remaining two at 11”.
-[![An uncarved pumpkin stays fresh for two to three months when stored at outdoor temperatures around 50 degrees fahrenheit. how to make paper pumpkins fun easy halloween kids craft its](http://tse4.mm.bing.net/th?id=OIP.WobxOe1HERXCUAwptmYNFwHaLH&amp;pid=15.1 "how to make paper pumpkins fun easy halloween kids craft its")](https://i0.wp.com/www.itsalwaysautumn.com/wp-content/uploads/2012/10/how-to-make-paper-pumpkins.jpg)
-<small>Source: i0.wp.com</small>
-
-Punch a hole in the end of each . It&#039;s a fun fall craft you . It&#039;s ideal for children and adults alike. Fold the stem on the score line. I drew a pumpkin on the .
-
-[![At room temperature, a pumpkin starts to go bad after about a month. 14 diy paper pumpkin craft ideas guide patterns](http://tse1.mm.bing.net/th?id=OIP.aYgTheKcyB1d99z0_C8JkgAAAA&amp;pid=15.1 "14 diy paper pumpkin craft ideas guide patterns")](https://i1.wp.com/www.guidepatterns.com/wp-content/uploads/2015/10/DIY-Paper-Pumpkin-Craft-Ideas.jpg)
-<small>Source: i1.wp.com</small>
-
-How to make a pumpkin with paper | paper craft i hope you have enjoyed this easy kids craft and if you like what you see don&#039;t forget to .
-[![Ultimately, the idea is to make the pumpkins unappetizing to the squirrels so they don’t want to eat them. 14 diy paper pumpkin craft ideas guide patterns](http://tse1.mm.bing.net/th?id=OIP.4lEkqqbXR866iSV36fwo_gHaDt&amp;pid=15.1 "14 diy paper pumpkin craft ideas guide patterns")](https://i0.wp.com/www.guidepatterns.com/wp-content/uploads/2015/10/Paper-Pumpkin-Ideas.jpg)
-<small>Source: i0.wp.com</small>
-
-Paper pumpkin made out of layers of concertina folded orange paper.
-[![Felt pumpkin face is a fun and easy craft for beginners. crafty betties halloween paper pumpkin](http://tse4.mm.bing.net/th?id=OIP.6ukNoZEbS_uLq_p0mQkPDQHaFj&amp;pid=15.1 "crafty betties halloween paper pumpkin")](https://4.bp.blogspot.com/-LTLpKDNzRG4/TqY4IhHmxJI/AAAAAAAAADw/imB1ehuR818/s1600/100_1382.JPG)
-<small>Source: 4.bp.blogspot.com</small>
-
-I drew a pumpkin on the .
-[![Punch a hole in the end of each . diy top 5 pumpkin paper crafts diy paper pumpkin halloween kids](http://tse3.mm.bing.net/th?id=OIP.4qbcwTVtTFjlHdNcLT5mmgHaFj&amp;pid=15.1 "diy top 5 pumpkin paper crafts diy paper pumpkin halloween kids")](https://i.ytimg.com/vi/aDMxeLyH-AQ/hqdefault.jpg)
-<small>Source: i.ytimg.com</small>
-
-It&#039;s a fun fall craft you .
-[![Punch a hole in the end of each . halloween 60 pumpkin crafts and ideas see vanessa craft](http://tse2.mm.bing.net/th?id=OIP.fA4fuNxDaZEs7z9wRrQFKgHaLE&amp;pid=15.1 "halloween 60 pumpkin crafts and ideas see vanessa craft")](http://seevanessacraft.com/wp-content/uploads/2017/09/DIY-Paper-Pumpkin.jpg)
-<small>Source: seevanessacraft.com</small>
-
-I drew a pumpkin on the .
-[![At room temperature, a pumpkin starts to go bad after about a month. pin on paper pumpkin september 2016 something good to eat](http://tse1.mm.bing.net/th?id=OIP.hGtBoAl_aj8CwVDDs5AM4AHaJ4&amp;pid=15.1 "pin on paper pumpkin september 2016 something good to eat")](https://i.pinimg.com/originals/8b/b4/10/8bb410f8857a1981535fc2d6cae526c7.jpg)
+[![Form the pumpkin with the round part of the paper fastener facing up, spread out the paper strips evenly. paper pumpkins a little tipsy paper pumpkin halloween paper fun](http://tse1.mm.bing.net/th?id=OIP.k2Klk9TAgUkxDcXcn-gEYQHaIx&amp;pid=15.1 "paper pumpkins a little tipsy paper pumpkin halloween paper fun")](https://i.pinimg.com/originals/72/1d/82/721d8248f275ae6ada9867d4892dfbd0.jpg)
 <small>Source: i.pinimg.com</small>
 
-An uncarved pumpkin stays fresh for two to three months when stored at outdoor temperatures around 50 degrees fahrenheit.
-[![Felt pumpkin face is a fun and easy craft for beginners. hand stamped by lacey paper pumpkin tutorial](http://tse2.mm.bing.net/th?id=OIP.Gogo0Mlp_KSRs6rKR5lvVQHaE0&amp;pid=15.1 "hand stamped by lacey paper pumpkin tutorial")](https://i0.wp.com/handstampedbylacey.typepad.com/.a/6a00e54fa4627788330105361917a1970b-600wi)
+These adorable paper pumpkins are super easy to make and perfect for decorating halloween parties, thanksgiving get togethe. Weboct 18, 2021 · in today’s post: A paper trimmer is handy, but you can … These fall paper pumpkins look beautiful in any decor. Welcome to making paper pumpkins!
+[![These adorable paper pumpkins are super easy to make and perfect for decorating halloween parties, thanksgiving get togethe. 32 paper mache pumpkin diy craft ideas guide patterns](http://tse2.mm.bing.net/th?id=OIP.oiLHh2r2naE-_ivqgneAkQHaJQ&amp;pid=15.1 "32 paper mache pumpkin diy craft ideas guide patterns")](https://i0.wp.com/www.guidepatterns.com/wp-content/uploads/2016/06/Paper-Mache-Pumpkin-Craft-Ideas.jpg)
 <small>Source: i0.wp.com</small>
 
-Then use a quilling tool to roll up your stem.
-[![At room temperature, a pumpkin starts to go bad after about a month. how to make paper pumpkins for fall diy inspired](http://tse1.mm.bing.net/th?id=OIP.X-0WHEhaX4ilz5EfVlbf0AHaE2&amp;pid=15.1 "how to make paper pumpkins for fall diy inspired")](https://i0.wp.com/diyinspired.com/wp-content/uploads/2015/08/How-to-Make-Paper-Pumpkins.jpg)
-<small>Source: i0.wp.com</small>
-
-It&#039;s ideal for children and adults alike.
-[![Paper pumpkin made out of layers of concertina folded orange paper. cupcake wishes birthday dreams diy halloween paper pumpkin](http://tse2.mm.bing.net/th?id=OIP.2fSCz0djFQEbxxZd3-aPegHaFk&amp;pid=15.1 "cupcake wishes birthday dreams diy halloween paper pumpkin")](https://i0.wp.com/paintingparispink.com/wp-content/uploads/2015/10/Finished-Pumpkins.png)
-<small>Source: i0.wp.com</small>
-
-Cut each piece of paper vertically into five 1.5” wide strips.
-[![Fold the stem on the score line. how to decorate a paper cutout pumpkin decorating pumpkins youtube](http://tse1.mm.bing.net/th?id=OIP.Ui3ggywThpjJj2JACGh5BwHaEK&amp;pid=15.1 "how to decorate a paper cutout pumpkin decorating pumpkins youtube")](https://i.ytimg.com/vi/hPujs_QWRVA/maxresdefault.jpg)
-<small>Source: i.ytimg.com</small>
-
-See more ideas about paper pumpkin, .
-[![To keep squirrels away from your pumpkins, you need to experiment with a number of options. halloween paper pumpkin easy tutorial diy youtube](http://tse3.mm.bing.net/th?id=OIP.9_YtbLSq5D3Q47oTaWdC8wHaEK&amp;pid=15.1 "halloween paper pumpkin easy tutorial diy youtube")](https://i.ytimg.com/vi/gWsRJvQaGWs/maxresdefault.jpg)
-<small>Source: i.ytimg.com</small>
-
-Ultimately, the idea is to make the pumpkins unappetizing to the squirrels so they don’t want to eat them.
-[![It&#039;s a fun fall craft you . 10 easy pumpkin construction paper crafts for kids to make](http://tse3.mm.bing.net/th?id=OIP.YRozOFocLI8VEpjisUTPugHaHa&amp;pid=15.1 "10 easy pumpkin construction paper crafts for kids to make")](https://i1.wp.com/twitchetts.com/wp-content/uploads/2020/09/Paper-Strip-Pumpkin-1.jpg)
-<small>Source: i1.wp.com</small>
-
-Fold the stem on the score line.
-[![It&#039;s ideal for children and adults alike. easy paper pumpkin craft pint sized treasures](http://tse4.mm.bing.net/th?id=OIP.H0a8SlWlFTjEupXeLkfxeQHaLH&amp;pid=15.1 "easy paper pumpkin craft pint sized treasures")](https://i0.wp.com/pintsizedtreasures.com/wp-content/uploads/2015/09/This-cute-paper-pumpkin-is-the-perfect-fall-craft-for-kids-And-it-looks-great1.jpg)
-<small>Source: i0.wp.com</small>
-
-It&#039;s ideal for children and adults alike.
-[![It&#039;s ideal for children and adults alike. paper pumpkin centerpiece julep](http://tse1.mm.bing.net/th?id=OIP.-zaaWgjC5SFqXzx_q9XI5AHaLH&amp;pid=15.1 "paper pumpkin centerpiece julep")](https://i0.wp.com/www.minted.com/julep/wp-content/uploads/2013/11/1_PaperPumpkins.jpg)
-<small>Source: i0.wp.com</small>
-
-How to make a paper pumpkin | fall crafts for kids these paper pumpkins are so easy to make and you only need some construction paper and .
-[![How to make a paper pumpkin | fall crafts for kids these paper pumpkins are so easy to make and you only need some construction paper and . papercuties stamp club project paper pumpkins](http://tse2.mm.bing.net/th?id=OIP.0ZQSzYCnHq9z49gleR0qWgHaFj&amp;pid=15.1 "papercuties stamp club project paper pumpkins")](https://i0.wp.com/3.bp.blogspot.com/_2rKttKkwsxo/TLOmsVvzYAI/AAAAAAAAA2A/zOYrFoEF90A/s1600/pumpkin+workshop7.jpg)
-<small>Source: i0.wp.com</small>
-
-Felt pumpkin face is a fun and easy craft for beginners.
-[![Punch a hole in the end of each . how to make paper pumpkins fun easy halloween kids craft its](http://tse3.mm.bing.net/th?id=OIP.pObaFMaAs5PTtJ5Sge6BiwHaHa&amp;pid=15.1 "how to make paper pumpkins fun easy halloween kids craft its")](https://www.itsalwaysautumn.com/wp-content/uploads/2012/10/halloween-decor-paper-pumpkins-diy-how-to-make-strip-kids-fun-easy-3.jpg)
-<small>Source: www.itsalwaysautumn.com</small>
-
-Fold the stem on the score line.
-[![How to make a pumpkin with paper | paper craft i hope you have enjoyed this easy kids craft and if you like what you see don&#039;t forget to . diy paper pumpkin lia griffith](http://tse2.mm.bing.net/th?id=OIP.Mc5FlX2unXv6JpSUm-RqjQHaMo&amp;pid=15.1 "diy paper pumpkin lia griffith")](https://s3-us-west-2.amazonaws.com/lia-griffith-media/wp-content/uploads/2015/10/Fall_Paper_Pumpkins.jpg)
-<small>Source: s3-us-west-2.amazonaws.com</small>
-
-Felt pumpkin face is a fun and easy craft for beginners.
-[![How to make a pumpkin with paper | paper craft i hope you have enjoyed this easy kids craft and if you like what you see don&#039;t forget to . layered leaves paper pumpkin kit extra projects flowerbugs inkspot](http://tse3.mm.bing.net/th?id=OIP.YTb0FBUTWNAdATTZHkW0CAHaEK&amp;pid=15.1 "layered leaves paper pumpkin kit extra projects flowerbugs inkspot")](https://i1.wp.com/i.ytimg.com/vi/XjVc8eWunYI/maxresdefault.jpg)
-<small>Source: i1.wp.com</small>
-
-It&#039;s a fun fall craft you .
-[![How to make a pumpkin with paper | paper craft i hope you have enjoyed this easy kids craft and if you like what you see don&#039;t forget to . pin by jeannie staley on paper pumpkin in 2020 cards handmade card](http://tse3.mm.bing.net/th?id=OIP.0UaN42eX7lMlqOcngwaGYwHaI6&amp;pid=15.1 "pin by jeannie staley on paper pumpkin in 2020 cards handmade card")](https://i.pinimg.com/originals/ed/6f/07/ed6f07a27b5a6cf62a8a50e5e0606255.jpg)
+Websep 25, 2023 · paper diy pumpkin decorations steps. Cut and connect the paper make a small mark every inch along the top and bottom of long edge of the paper. You’ll need 4 total to make the pumpkin shown. 590k views 3 years ago. Webaug 4, 2022 · learn how to make a paper pumpkin.
+[![Weboct 18, 2021 · in today’s post: 13 paper pumpkin sept 16 ideas paper pumpkin paper pumpkin stampin](http://tse2.mm.bing.net/th?id=OIP.HHNvRril2xEs_99orV7FgwAAAA&amp;pid=15.1 "13 paper pumpkin sept 16 ideas paper pumpkin paper pumpkin stampin")](https://i.pinimg.com/474x/c3/47/bd/c347bd2c8de6acac98982877a8049394--paper-pumpkin-paper-ornaments.jpg)
 <small>Source: i.pinimg.com</small>
 
-How to make a pumpkin with paper | paper craft i hope you have enjoyed this easy kids craft and if you like what you see don&#039;t forget to .
-[![At room temperature, a pumpkin starts to go bad after about a month. pumpkin paper crafts 99 degree](http://tse4.mm.bing.net/th?id=OIP.czyklkINghMOpTm_jjeUQQHaKe&amp;pid=15.1 "pumpkin paper crafts 99 degree")](https://2.bp.blogspot.com/-h6uVAuaWB-E/UHGdKj9wisI/AAAAAAAAAKE/LzBunn19Tck/s1600/pumpkin-paper-craft.jpg)
+Webaug 4, 2022 · learn how to make a paper pumpkin. As halloween is soon going to knock at your doors, get prepared with some adorable paper pumpkin crafts that would give your temporarily haunted mansion a creepy yet adorable finish. Webjul 12, 2018 · you can try it with different colored papers (crepe, tissue, cardstock, old book papers, newspapers, scrapbook pages etc.) in different patterns as well. Form the stem and vines You can use these in arrangements, table decor and fall wreath decorations.
+[![How many sheets of paper will i need for each size of pumpkin? maddiebug designs alternate paper pumpkin ideas](http://tse3.mm.bing.net/th?id=OIP.44Qw1ZGopWL3c_Uq5K0aKAHaKi&amp;pid=15.1 "maddiebug designs alternate paper pumpkin ideas")](https://2.bp.blogspot.com/-SQmpBcdfnH4/WUuwoYrXo9I/AAAAAAAARhE/uFeiMvzWOnkg-C3crxarPrUuBMGtbQQwACEwYBhgL/s1600/IMG_6917.JPG)
 <small>Source: 2.bp.blogspot.com</small>
 
-It&#039;s a fun fall craft you .
-[![Then cut each strip into one 7”, two 9”, and keep the remaining two at 11”. diy paper pumpkins the perfect fall project](http://tse4.mm.bing.net/th?id=OIP.LfX08NS95SzAG2AOY71W3AHaEt&amp;pid=15.1 "diy paper pumpkins the perfect fall project")](https://cdn.homedit.com/wp-content/uploads/2011/09/diy-paper-pumpkins-1-500x318.jpg)
-<small>Source: cdn.homedit.com</small>
-
-At room temperature, a pumpkin starts to go bad after about a month.
-[![Fold the stem on the score line. paper pumpkins a little tipsy paper pumpkin halloween paper fun](http://tse4.mm.bing.net/th?id=OIP.k2Klk9TAgUkxDcXcn-gEYQHaIx&amp;pid=15.1 "paper pumpkins a little tipsy paper pumpkin halloween paper fun")](https://i0.wp.com/i.pinimg.com/originals/72/1d/82/721d8248f275ae6ada9867d4892dfbd0.jpg)
-<small>Source: i0.wp.com</small>
-
-Paper pumpkin made out of layers of concertina folded orange paper.
-[![Then cut each strip into one 7”, two 9”, and keep the remaining two at 11”. halloween decorating a paper pumpkin play and learn every day](http://tse4.mm.bing.net/th?id=OIP.HKYGYKpcBRokJcPao9-uPgHaIj&amp;pid=15.1 "halloween decorating a paper pumpkin play and learn every day")](http://4.bp.blogspot.com/-BxO6j6675Ug/UmV-D66YruI/AAAAAAAABZI/AT3ESvUAVFU/s1600/halloween+decorating+a+paper+pumpkin.jpg)
-<small>Source: 4.bp.blogspot.com</small>
-
-To keep squirrels away from your pumpkins, you need to experiment with a number of options.
-[![It&#039;s ideal for children and adults alike. paper pumpkin centerpiece julep](http://tse4.mm.bing.net/th?id=OIP.uegUbWx4gH_WxJJx5SxO7QHaLH&amp;pid=15.1 "paper pumpkin centerpiece julep")](https://i1.wp.com/www.minted.com/julep/wp-content/uploads/2013/11/2_PaperPumpkins1.jpg)
+Diy paper pumpkin craft ideas. Websep 1, 2020 · paper pumpkin craft orange paper (regular or construction paper) green paper (same) black construction paper (optional) scissors glue You can use these in arrangements, table decor and fall wreath decorations. Websep 25, 2023 · paper diy pumpkin decorations steps. Find easy to follow instructions for making adorable paper pumpkins from strips of card stock or construction paper.
+[![Websep 25, 2023 · paper diy pumpkin decorations steps. scrapbook chickadoodle paper pumpkin](http://tse1.mm.bing.net/th?id=OIP.fDXKDfjKPT3eU8KgHHleDQAAAA&amp;pid=15.1 "scrapbook chickadoodle paper pumpkin")](https://i1.wp.com/3.bp.blogspot.com/-Ym9HN2N4BJ4/TpzXCxf-OzI/AAAAAAAAADI/sO5--WPth2g/s320/paper+pumpkin.jpg)
 <small>Source: i1.wp.com</small>
 
-These little pumpkins are so much fun to make.
-[![Craft supplies that work well with paper pumpkin crafts · glue sticks · white glue · scissors · googly eyes · craft sticks · pipe cleaners · tissue . how to make paper pumpkins fun easy halloween kids craft its](http://tse4.mm.bing.net/th?id=OIP.WobxOe1HERXCUAwptmYNFwHaLH&amp;pid=15.1 "how to make paper pumpkins fun easy halloween kids craft its")](https://i0.wp.com/www.itsalwaysautumn.com/wp-content/uploads/2012/10/how-to-make-paper-pumpkins.jpg)
+These fall paper pumpkins look beautiful in any decor. Form the stem and vines Websep 16, 2022 · project tips what type of paper is best for this project? Cut and connect the paper make a small mark every inch along the top and bottom of long edge of the paper. Select your paper to make a pumpkin.
+[![Weboct 18, 2021 · in today’s post: are you interested in our halloween pumpkin decoration with our](http://tse3.mm.bing.net/th?id=OIP.aaK1aIp7l6gmIzI6lKLn_wHaHa&amp;pid=15.1 "are you interested in our halloween pumpkin decoration with our")](https://i.pinimg.com/736x/f9/d8/1a/f9d81a1e6385de12066d3f75af24f9a4.jpg)
+<small>Source: i.pinimg.com</small>
+
+Cut and connect the paper make a small mark every inch along the top and bottom of long edge of the paper. Welcome to making paper pumpkins! If you like paper crafts, you. Webaug 4, 2022 · learn how to make a paper pumpkin. White pumpkins are cute, but all the fall colors work for these paper pumpkin decor.
+[![Form the stem and vines paper pumpkin decorating ideas crafts creativebug](http://tse3.mm.bing.net/th?id=OIP.CtGPuEXTGZRwIcmooGCJyQAAAA&amp;pid=15.1 "paper pumpkin decorating ideas crafts creativebug")](https://i1.wp.com/photos.demandstudios.com/60/21/fotolia_1286908_XS.jpg)
+<small>Source: i1.wp.com</small>
+
+590k views 3 years ago. Go through the versatile diy tutorials and make your own paper pumpkin craft this halloween! Find easy to follow instructions for making adorable paper pumpkins from strips of card stock or construction paper. Websep 16, 2022 · project tips what type of paper is best for this project? You’ll need 4 total to make the pumpkin shown.
+[![How many sheets of paper will i need for each size of pumpkin? easy paper pumpkin craft pint sized treasures](http://tse1.mm.bing.net/th?id=OIP.H0a8SlWlFTjEupXeLkfxeQHaLH&amp;pid=15.1 "easy paper pumpkin craft pint sized treasures")](https://i0.wp.com/pintsizedtreasures.com/wp-content/uploads/2015/09/This-cute-paper-pumpkin-is-the-perfect-fall-craft-for-kids-And-it-looks-great1.jpg)
 <small>Source: i0.wp.com</small>
 
-Punch a hole in the end of each .
+As halloween is soon going to knock at your doors, get prepared with some adorable paper pumpkin crafts that would give your temporarily haunted mansion a creepy yet adorable finish. Form the stem and vines This is a fun, quick halloween craft for kids or adults that doubles as holiday decor. Find easy to follow instructions for making adorable paper pumpkins from strips of card stock or construction paper. Weboct 10, 2015 · 14 diy paper pumpkin craft ideas.
+[![White pumpkins are cute, but all the fall colors work for these paper pumpkin decor. how to make paper pumpkins fun easy halloween kids craft its](http://tse3.mm.bing.net/th?id=OIP.bBO5GflrGrd2oWP3lNA-dAHaJt&amp;pid=15.1 "how to make paper pumpkins fun easy halloween kids craft its")](https://i0.wp.com/www.itsalwaysautumn.com/wp-content/uploads/2012/10/halloween-decor-paper-pumpkins-diy-how-to-make-strip-kids-fun-easy-4.jpg)
+<small>Source: i0.wp.com</small>
+
+These fall paper pumpkins look beautiful in any decor. These adorable paper pumpkins are super easy to make and perfect for decorating halloween parties, thanksgiving get togethe. You’ll need 4 total to make the pumpkin shown. Websep 1, 2020 · paper pumpkin craft orange paper (regular or construction paper) green paper (same) black construction paper (optional) scissors glue Form the pumpkin with the round part of the paper fastener facing up, spread out the paper strips evenly.
+
+[![This is a fun, quick halloween craft for kids or adults that doubles as holiday decor. crafty craftedcom blog archive crafts for children halloween](http://tse4.mm.bing.net/th?id=OIP.Ob9t5gYeZ0xKqBEhTMFw8QHaFm&amp;pid=15.1 "crafty craftedcom blog archive crafts for children halloween")](https://i0.wp.com/www.crafty-crafted.com/wp-content/uploads/2012/10/13.jpg)
+<small>Source: i0.wp.com</small>
+
+As halloween is soon going to knock at your doors, get prepared with some adorable paper pumpkin crafts that would give your temporarily haunted mansion a creepy yet adorable finish.
+[![Form the pumpkin with the round part of the paper fastener facing up, spread out the paper strips evenly. molly bees attic october 2012](http://tse4.mm.bing.net/th?id=OIP.ghy6sCQh0J2XB3IkFJ8JsAHaGV&amp;pid=15.1 "molly bees attic october 2012")](http://3.bp.blogspot.com/-Rsm13eZ4bWc/UI7jQLET_KI/AAAAAAAAFx0/49-HTgu40ck/s1600/pumpkin.jpg)
+<small>Source: 3.bp.blogspot.com</small>
+
+This is a fun, quick halloween craft for kids or adults that doubles as holiday decor.
+[![As halloween is soon going to knock at your doors, get prepared with some adorable paper pumpkin crafts that would give your temporarily haunted mansion a creepy yet adorable finish. 32 paper mache pumpkin diy craft ideas guide patterns](http://tse2.mm.bing.net/th?id=OIP.oiLHh2r2naE-_ivqgneAkQHaJQ&amp;pid=15.1 "32 paper mache pumpkin diy craft ideas guide patterns")](https://i0.wp.com/www.guidepatterns.com/wp-content/uploads/2016/06/Paper-Mache-Pumpkin-Craft-Ideas.jpg)
+<small>Source: i0.wp.com</small>
+
+Weboct 18, 2021 · in today’s post:
+[![White pumpkins are cute, but all the fall colors work for these paper pumpkin decor. how to make paper pumpkins fun easy halloween kids craft its](http://tse1.mm.bing.net/th?id=OIP.pObaFMaAs5PTtJ5Sge6BiwAAAA&amp;pid=15.1 "how to make paper pumpkins fun easy halloween kids craft its")](https://www.itsalwaysautumn.com/wp-content/uploads/2012/10/halloween-decor-paper-pumpkins-diy-how-to-make-strip-kids-fun-easy-3.jpg)
+<small>Source: www.itsalwaysautumn.com</small>
+
+Weboct 10, 2015 · 14 diy paper pumpkin craft ideas.
+[![Form the pumpkin with the round part of the paper fastener facing up, spread out the paper strips evenly. september paper pumpkin paper pumpkin 2015 paper pumpkin paper](http://tse4.mm.bing.net/th?id=OIP.6TltZJAyXT7_dkkXlq3ARQHaL2&amp;pid=15.1 "september paper pumpkin paper pumpkin 2015 paper pumpkin paper")](https://i.pinimg.com/736x/ef/70/75/ef7075cc2e0371fe7cfc100b54983a20--pumpkin-designs-pumpkin-ideas.jpg)
+<small>Source: i.pinimg.com</small>
+
+Weboct 18, 2021 · in today’s post:
+[![White pumpkins are cute, but all the fall colors work for these paper pumpkin decor. halloween decorating a paper pumpkin play and learn every day](http://tse3.mm.bing.net/th?id=OIP.HKYGYKpcBRokJcPao9-uPgHaIj&amp;pid=15.1 "halloween decorating a paper pumpkin play and learn every day")](https://4.bp.blogspot.com/-BxO6j6675Ug/UmV-D66YruI/AAAAAAAABZI/AT3ESvUAVFU/s1600/halloween+decorating+a+paper+pumpkin.jpg)
+<small>Source: 4.bp.blogspot.com</small>
+
+These adorable paper pumpkins are super easy to make and perfect for decorating halloween parties, thanksgiving get togethe.
+[![Websep 16, 2022 · project tips what type of paper is best for this project? papercuties stamp club project paper pumpkins](http://tse2.mm.bing.net/th?id=OIP.0ZQSzYCnHq9z49gleR0qWgHaFj&amp;pid=15.1 "papercuties stamp club project paper pumpkins")](http://3.bp.blogspot.com/_2rKttKkwsxo/TLOmsVvzYAI/AAAAAAAAA2A/zOYrFoEF90A/s1600/pumpkin+workshop7.jpg)
+<small>Source: 3.bp.blogspot.com</small>
+
+Diy paper pumpkin craft ideas.
+[![Go through the versatile diy tutorials and make your own paper pumpkin craft this halloween! how to make paper pumpkins fun easy halloween kids craft its](http://tse3.mm.bing.net/th?id=OIP.bBO5GflrGrd2oWP3lNA-dAHaJt&amp;pid=15.1 "how to make paper pumpkins fun easy halloween kids craft its")](https://i0.wp.com/www.itsalwaysautumn.com/wp-content/uploads/2012/10/halloween-decor-paper-pumpkins-diy-how-to-make-strip-kids-fun-easy-4.jpg)
+<small>Source: i0.wp.com</small>
+
+A paper trimmer is handy, but you can …
+[![A paper trimmer is handy, but you can … 50 of the best pumpkin decorating ideas creative pumpkin decorating](http://tse4.mm.bing.net/th?id=OIP.ecFbA7u-xvgf0-3-35-omQHaHa&amp;pid=15.1 "50 of the best pumpkin decorating ideas creative pumpkin decorating")](https://i1.wp.com/i.pinimg.com/originals/4e/a6/21/4ea6215c7691c83b757e7da2a737f383.jpg)
+<small>Source: i1.wp.com</small>
+
+590k views 3 years ago.
+[![Websep 16, 2022 · project tips what type of paper is best for this project? diy paper pumpkin lia griffith](http://tse1.mm.bing.net/th?id=OIP.Mc5FlX2unXv6JpSUm-RqjQHaMo&amp;pid=15.1 "diy paper pumpkin lia griffith")](https://i0.wp.com/s3-us-west-2.amazonaws.com/lia-griffith-media/wp-content/uploads/2015/10/Fall_Paper_Pumpkins.jpg)
+<small>Source: i0.wp.com</small>
+
+You’ll need 4 total to make the pumpkin shown.
+[![You can use these in arrangements, table decor and fall wreath decorations. how to make a pumpkin with paper paper crafts youtube](http://tse4.mm.bing.net/th?id=OIP.1Ux-4NFSvpFe4TWaWAeYOQHaEK&amp;pid=15.1 "how to make a pumpkin with paper paper crafts youtube")](https://i.ytimg.com/vi/G_6RhEfq12k/maxresdefault.jpg)
+<small>Source: i.ytimg.com</small>
+
+A paper trimmer is handy, but you can …
+[![These fall paper pumpkins look beautiful in any decor. paper strip pumpkin craft](http://tse4.mm.bing.net/th?id=OIP.aDnSYBhea3tBi1uRUJL2zQHaFP&amp;pid=15.1 "paper strip pumpkin craft")](http://www.dltk-holidays.com/thanksgiving/images/mpaperstrippumpkin.jpg)
+<small>Source: www.dltk-holidays.com</small>
+
+Weboct 18, 2021 · in today’s post:
+[![Weboct 18, 2021 · in today’s post: easy paper pumpkin craft pint sized treasures](http://tse1.mm.bing.net/th?id=OIP.H0a8SlWlFTjEupXeLkfxeQHaLH&amp;pid=15.1 "easy paper pumpkin craft pint sized treasures")](https://i0.wp.com/pintsizedtreasures.com/wp-content/uploads/2015/09/This-cute-paper-pumpkin-is-the-perfect-fall-craft-for-kids-And-it-looks-great1.jpg)
+<small>Source: i0.wp.com</small>
+
+590k views 3 years ago.
+[![Select your paper to make a pumpkin. scrapbook chickadoodle paper pumpkin](http://tse1.mm.bing.net/th?id=OIP.fDXKDfjKPT3eU8KgHHleDQAAAA&amp;pid=15.1 "scrapbook chickadoodle paper pumpkin")](https://i1.wp.com/3.bp.blogspot.com/-Ym9HN2N4BJ4/TpzXCxf-OzI/AAAAAAAAADI/sO5--WPth2g/s320/paper+pumpkin.jpg)
+<small>Source: i1.wp.com</small>
+
+White pumpkins are cute, but all the fall colors work for these paper pumpkin decor.
+[![Webaug 4, 2022 · learn how to make a paper pumpkin. paper pumpkin decorating ideas crafts creativebug](http://tse3.mm.bing.net/th?id=OIP.CtGPuEXTGZRwIcmooGCJyQAAAA&amp;pid=15.1 "paper pumpkin decorating ideas crafts creativebug")](https://i1.wp.com/photos.demandstudios.com/60/21/fotolia_1286908_XS.jpg)
+<small>Source: i1.wp.com</small>
+
+Form the pumpkin with the round part of the paper fastener facing up, spread out the paper strips evenly.
+[![Weboct 10, 2015 · 14 diy paper pumpkin craft ideas. how to make a paper pumpkin halloween decorations paper crafts](http://tse2.mm.bing.net/th?id=OIP.S6J33qIl0aV1cweclc0veAAAAA&amp;pid=15.1 "how to make a paper pumpkin halloween decorations paper crafts")](https://i.ytimg.com/vi/G3fIcPLWCDg/maxresdefault.jpg)
+<small>Source: i.ytimg.com</small>
+
+Weboct 10, 2015 · 14 diy paper pumpkin craft ideas.
+[![Weboct 18, 2021 · in today’s post: paper pumpkins a little tipsy paper pumpkin halloween paper fun](http://tse1.mm.bing.net/th?id=OIP.k2Klk9TAgUkxDcXcn-gEYQHaIx&amp;pid=15.1 "paper pumpkins a little tipsy paper pumpkin halloween paper fun")](https://i.pinimg.com/originals/72/1d/82/721d8248f275ae6ada9867d4892dfbd0.jpg)
+<small>Source: i.pinimg.com</small>
+
+Form the pumpkin with the round part of the paper fastener facing up, spread out the paper strips evenly.
+[![Find easy to follow instructions for making adorable paper pumpkins from strips of card stock or construction paper. 10 easy pumpkin construction paper crafts for kids to make](http://tse1.mm.bing.net/th?id=OIP.YRozOFocLI8VEpjisUTPugHaHa&amp;pid=15.1 "10 easy pumpkin construction paper crafts for kids to make")](https://twitchetts.com/wp-content/uploads/2020/09/Paper-Strip-Pumpkin-1.jpg)
+<small>Source: twitchetts.com</small>
+
+As halloween is soon going to knock at your doors, get prepared with some adorable paper pumpkin crafts that would give your temporarily haunted mansion a creepy yet adorable finish.
+[![Again, the colors are endless. how to decorate a paper cutout pumpkin decorating pumpkins youtube](http://tse4.mm.bing.net/th?id=OIP.Ui3ggywThpjJj2JACGh5BwHaEK&amp;pid=15.1 "how to decorate a paper cutout pumpkin decorating pumpkins youtube")](https://i0.wp.com/i.ytimg.com/vi/hPujs_QWRVA/maxresdefault.jpg)
+<small>Source: i0.wp.com</small>
+
+Find easy to follow instructions for making adorable paper pumpkins from strips of card stock or construction paper.
+[![These adorable paper pumpkins are super easy to make and perfect for decorating halloween parties, thanksgiving get togethe. crafty betties halloween paper pumpkin](http://tse3.mm.bing.net/th?id=OIP.6ukNoZEbS_uLq_p0mQkPDQHaFj&amp;pid=15.1 "crafty betties halloween paper pumpkin")](https://4.bp.blogspot.com/-LTLpKDNzRG4/TqY4IhHmxJI/AAAAAAAAADw/imB1ehuR818/s1600/100_1382.JPG)
+<small>Source: 4.bp.blogspot.com</small>
+
+You can use these in arrangements, table decor and fall wreath decorations.
+[![These fall paper pumpkins look beautiful in any decor. maddiebug designs alternate paper pumpkin ideas](http://tse3.mm.bing.net/th?id=OIP.44Qw1ZGopWL3c_Uq5K0aKAHaKi&amp;pid=15.1 "maddiebug designs alternate paper pumpkin ideas")](https://2.bp.blogspot.com/-SQmpBcdfnH4/WUuwoYrXo9I/AAAAAAAARhE/uFeiMvzWOnkg-C3crxarPrUuBMGtbQQwACEwYBhgL/s1600/IMG_6917.JPG)
+<small>Source: 2.bp.blogspot.com</small>
+
+Websep 25, 2023 · paper diy pumpkin decorations steps.
+[![590k views 3 years ago. designs all to myself](http://tse2.mm.bing.net/th?id=OIP.IjOiwCou3Ot8bTJsdLezJQHaFj&amp;pid=15.1 "designs all to myself")](https://i0.wp.com/christinedebeer.ca/images/2013/10/paper-pumpkin-l.jpg?inside=600x600)
+<small>Source: i0.wp.com</small>
+
+Form the pumpkin with the round part of the paper fastener facing up, spread out the paper strips evenly.
+[![White pumpkins are cute, but all the fall colors work for these paper pumpkin decor. 10 coolest halloween pumpkin decoration ideas web cool tips](http://tse2.mm.bing.net/th?id=OIP.WyfxH5WmKEnaYvWOqsowxQHaHp&amp;pid=15.1 "10 coolest halloween pumpkin decoration ideas web cool tips")](https://www.webcooltips.com/wp-content/uploads/2013/09/Paper-Pumpkins.jpg)
+<small>Source: www.webcooltips.com</small>
+
+A paper trimmer is handy, but you can …
+[![You can use these in arrangements, table decor and fall wreath decorations. 94 tissue paper decoupage pumpkins](http://tse2.mm.bing.net/th?id=OIP.pdnwUfPZ6yRIJpmrcas8kQHaLH&amp;pid=15.1 "94 tissue paper decoupage pumpkins")](https://hips.hearstapps.com/hmg-prod.s3.amazonaws.com/images/drippy-pour-art-pumpkin-no-carve-halloween-dreamalittlebigger-15-1532467772.jpg?crop=0.9689922480620154xw:1xh;center,top&amp;resize=768:*)
+<small>Source: hips.hearstapps.com</small>
+
+Welcome to making paper pumpkins!
+[![Cut and connect the paper make a small mark every inch along the top and bottom of long edge of the paper. 14 diy paper pumpkin craft ideas guide patterns](http://tse4.mm.bing.net/th?id=OIP.4lEkqqbXR866iSV36fwo_gHaDt&amp;pid=15.1 "14 diy paper pumpkin craft ideas guide patterns")](http://www.guidepatterns.com/wp-content/uploads/2015/10/Paper-Pumpkin-Ideas.jpg)
+<small>Source: www.guidepatterns.com</small>
+
+You’ll need 4 total to make the pumpkin shown.
